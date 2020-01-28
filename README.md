@@ -1,0 +1,2 @@
+# ifyno
+Hi,  My name is Ajay and I carry 9+ years of quality experience in developing mobile app development using iOS SDK and Android Apps and expertise with .PHP and MySQL as back-end based web applications development as well. I have excellent expertise with Geo-tagging, and mapping in mobile apps and good communication skills. I can be your mobile app developer for ios and android mobile app development.
